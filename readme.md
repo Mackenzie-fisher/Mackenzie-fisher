@@ -7,7 +7,6 @@
 - 💬 Ask me about anything!
 - 📫 How to reach me: Discord: NinjaRacc#6969
 - 😄 Pronouns: he/him they/them
-- ⚡ Fun fact: i am 15
 
 
 
