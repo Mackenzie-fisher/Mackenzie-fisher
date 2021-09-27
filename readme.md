@@ -3,7 +3,7 @@
 
 
 
-- 🔭 I’m currently working on a portfolio website!
+- 🔭 I’m currently working on Njord miner
 - 💬 Ask me about anything!
 - 📫 How to reach me: Discord: NinjaRacc#6969
 - 😄 Pronouns: he/him they/them
